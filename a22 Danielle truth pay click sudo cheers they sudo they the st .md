@@ -1,13 +1,15 @@
-![image](https://github.com/darkarmevan/evan-can/assets/157080147/665bf360-5718-438f-a321-842714057f57)
+
+
+![665bf360-5718-438f-a321-842714057f57](https://github.com/eduffield82/dayo-can/assets/160559076/2193d814-394b-4c2a-a414-2b8b8f4510ec)
 bold ii2n3 ipn2pn iinp 2nip 2pn iopn io2np io2n pion iop2 nio2 nioin2
-![image](https://github.com/darkarmevan/evan-can/assets/157080147/e245529d-dbb3-47b6-bae4-523eb12de0b0)
 
 boldoi 23oin ppon i2np io2n iopnio2 pn iop2ni op2n iopn i2opn ipo2n io nio2p 2 
+![e245529d-dbb3-47b6-bae4-523eb12de0b0](https://github.com/eduffield82/dayo-can/assets/160559076/37139007-8611-4087-810a-655d613910f6)
 
 bold
     vo32 2 nip in2p ino2pin o2np ion iop2 nipo2 nio n2i 
+![2871492f-e0b1-46f0-a4bb-6d4792fc69c6](https://github.com/eduffield82/dayo-can/assets/160559076/314c19cf-043d-40c8-90c1-9b6177e2d38b)
 
-![image](https://github.com/darkarmevan/evan-can/assets/157080147/2871492f-e0b1-46f0-a4bb-6d4792fc69c6)
 the
 the polition
 the
